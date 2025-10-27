@@ -1,0 +1,1 @@
+Uranio token assets
